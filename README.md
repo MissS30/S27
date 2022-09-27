@@ -1,3 +1,3 @@
 # S27
-Hi 👋, Swathy here .
+Hi 👋, MissS30 here .
 I look forward to learning new skills.
